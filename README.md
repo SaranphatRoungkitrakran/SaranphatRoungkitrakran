@@ -3,6 +3,7 @@ I come from Thailand. I am still be newbie in IT and Github, so I hope everyone
 will be friendly with me and cooperate sometimes.🗼
 
 🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌
+
  It's time to show more details about my profile.
 - Now I live in Japan and working for IT support in KAMIITA SOSEI Co.
 - I want to learn more in IT industry and even Robotic industry too.
