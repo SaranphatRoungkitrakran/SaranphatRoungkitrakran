@@ -9,7 +9,8 @@ will be friendly with me and cooperate sometimes.🗼
 - I want to learn more in IT industry and even Robotic industry too.
 - My dream I want to manufacture my robot or create somethings new in this world.
 - Contract: Email:Gungungungundam@hotmail.com
-
+- You can see update content in my personal site: www.saranphat.com
+- 
 🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌
 
 🏯こんにちは、僕の名前はルンキッタカーン サランパットです。僕の国籍はタイです。
@@ -23,6 +24,7 @@ IT業界とGithub使い経験が初心者レベルですが、頑張ります。
 - 僕は上級のIT知識、またロボティスを色々なものを勉強したいです。
 - 僕の夢は自分のロボットを開発したいです。また、新たなものを開発したいです。
 - 連絡先 メールアドレス:Gungungungundam@hotmail.com
+- アップデートコンテンツはこちらの個人サイトでご覧ください：　www.saranphat.com
 
 🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌🎌
 <!---
